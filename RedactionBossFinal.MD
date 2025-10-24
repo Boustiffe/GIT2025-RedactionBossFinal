@@ -8,11 +8,7 @@ L'entité que l'on nomme le Gardien des Archives Perdues n'est pas un monstre, m
 
 # P2 : L'Objectif Secret du Boss
 
-
-
-Les motivations profondes du Gardien des Archives Perdues sont en réalité très personnelles : il ne cherche pas à détruire le monde, mais plutôt à **\[UN BUT ÉGOÏSTE ET RIDICULE]**. Pour atteindre cet objectif, il a besoin de rassembler **\[TROIS OBJETS DE QUÊTE TOTALEMENT DISPARATES]** : **\[OBJET 1]**, **\[OBJET 2]**, et le fameux **\[OBJET 3]**. Ces trois objets, une fois unis, créent non pas une explosion d'énergie, mais une **\[CONSÉQUENCE INATTENDUE ET HUMILIANTE]**. C'est le secret qu'il protège farouchement.
-
-
+Le Gardien des Archives Perdues ne souhaite pas dominer le monde mais bien entrainer le groupe de héros pour les préparer à affronter les plus grandes menaces annoncées par les prophécies. Les Prophécies des Archives annoncent effectivement une fin du monde si un groupe ne se forme pas. Il doit tout faire pour les détruire car s'ils ne sont pas à la hauteur alors il moureront et condamneront le monde avec eux. Mieux vaut qu'ils meurent maintenant et qu'un autre groupe se révèle face aux attrocités que lui-même en temps que Gardien impose au monde. 
 
 # P3 : La Méthode pour le Vaincre
 
