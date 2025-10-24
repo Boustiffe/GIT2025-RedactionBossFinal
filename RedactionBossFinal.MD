@@ -14,5 +14,5 @@ Le Gardien des Archives Perdues ne souhaite pas dominer le monde mais bien entra
 
 
 
-Le combat contre le Gardien des Archives Perdues est une épreuve de **\[QUALITÉ HUMAINE NON LIÉE AU JEU]**. Son attaque signature est **\[UNE TECHNIQUE OU UN MOUVEMENT DE COMBAT GROTESQUE]**. Son point faible, qui doit rester caché aux joueurs, est qu'il est terriblement sensible à **\[UNE STIMULATION SENSORIELLE OU ÉMOTIONNELLE]**. Pour le vaincre, le joueur doit absolument exécuter **\[UNE MÉCANIQUE DE JEU COMPLÈTEMENT INHABITUELLE OU STUPIDE]** dans la troisième phase du combat, ce qui provoque la **\[DESTRUCTION OU LA TRANSFORMATION FINALE LOUFOQUE]** du Gardien.
+Le combat contre le Gardien des Archives Perdues est une épreuve de **joute verbale**. Son attaque signature est **qui j'imitte**. Son point faible, qui doit rester caché aux joueurs, est qu'il est terriblement sensible au pique sur sa tenue. Pour le vaincre, le joueur doit absolument exécuter **jojo pose suivi d'une repartie bien placé** dans la troisième phase du combat, ce qui provoque la **transformation en magical gurl** du Gardien.
 
