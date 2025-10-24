@@ -2,7 +2,7 @@
 
 
 
-L'entité que l'on nomme le Gardien des Archives Perdues n'est pas un monstre, mais une **\[IDENTITÉ OU FONCTION ABSOLUMENT BANALE]**. Son apparence est le résultat d'un **\[PROCESSUS PHYSIQUE OU ÉMOTIONNEL COMPLÈTEMENT INSIGNIFIANT]** et il réside dans **\[UN LIEU CONTRASTANT AVEC SON STATUT]**. Son pouvoir ne réside pas dans la force brute, mais dans sa capacité à **\[UN POUVOIR DE JEU FAIBLE OU HORS SUJET]**. En réalité, il passe la majorité de son temps à **\[UNE TÂCHE QUOTIDIENNE ET RÉPÉTITIVE]**.
+L'entité que l'on nomme le Gardien des Archives Perdues n'est pas un monstre, mais une **simple tringle à rideaux**. Son apparence est le résultat d'un **acharnement violent sur les divers tissus lumino-bloquants** et il réside dans **une cantine d'EPHAD**. Son pouvoir ne réside pas dans la force brute, mais dans sa capacité à **faire du chaud froid avec à peut prêt n'importe quel sujet**. En réalité, il passe la majorité de son temps à **brasser de l'air**.
 
 
 
